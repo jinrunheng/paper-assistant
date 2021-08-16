@@ -49,7 +49,7 @@
 - [在家如何写出优秀论文？？【保姆级论文写作教程】 手把手教你从开题到查重 | 降重小秘诀](https://www.bilibili.com/video/BV1L7411K7iH?from=search&seid=15222233879301333462)
 
 - [【毕导】学渣的绝地求生！如何快速肝出一篇优秀的学术论文？](https://www.bilibili.com/video/BV1Sg4y1q79G/?spm_id_from=333.788.recommend_more_video.-1)
-- [【毕导】建议收藏！如何在毕业答辩上一展雄风，成为答辩之神！]([作品](https://www.bilibili.com/blackboard/activity-campustalents-PC.html)[毕导]建议收藏！如何在毕业答辩上一展雄风，成为答辩之神！)
+- [【毕导】建议收藏！如何在毕业答辩上一展雄风，成为答辩之神！](https://www.bilibili.com/video/BV1XT4y1u7ca?from=search&seid=16455346996738140486)
 - [论文写作：如何写论文系列讲座合集 (1-10) 论文结构|引言|选题|研究目标|文献综述](https://www.bilibili.com/video/BV1mJ411m7YQ?from=search&seid=15222233879301333462)
 - [建议收藏｜论文写作基本功（二）：实操示范｜博士学姐手把手带你遣词造句｜建议边看边思考](https://www.bilibili.com/video/BV17K4y1t7BZ/?spm_id_from=333.788.recommend_more_video.1)
 

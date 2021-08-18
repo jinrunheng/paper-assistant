@@ -49,7 +49,9 @@
 - [【硕导深度解析 || 干货】研究生开题报告怎么写](https://www.bilibili.com/video/BV1kZ4y1G7c3?from=search&seid=10596901797036886980)
 - [论文开题报告撰写](https://www.bilibili.com/video/BV1HV411b7hK?from=search&seid=10596901797036886980)
 - [毕业论文开题报告中最重要的就是研究内容和研究现状，在写作过程中一定要格外重视这两个地方！](https://www.bilibili.com/video/BV1Cb4y1f78r?from=search&seid=10596901797036886980)
-- 
+- [【教授石头超】读研读博的同学注意啦！开题报告的注意事项你们都需要哦！](https://www.bilibili.com/video/BV1p64y1R7T4?from=search&seid=720126001180353968)
+- [研究生 开题答辩的正确姿势☞经验分享✔如何搞定论文开题报告&残酷答辩？](https://www.bilibili.com/video/BV1fJ411d7bH/?spm_id_from=333.788.recommend_more_video.0)
+- [【科研必备】开题系列：开题报告的书写](https://www.bilibili.com/video/BV194411N7nv?from=search&seid=720126001180353968)
 #### 文献综述
 - [建议收藏｜文献综述（二）例文解析｜博士学姐的干货分享｜讲的有点细，大家可以加速，建议看完哦！](https://www.bilibili.com/video/BV1WV411k7ow/?spm_id_from=333.788.recommend_more_video.-1)
 - [【论文拯救指南】干货！厦大博士学长手把手带你写文献综述，本科毕设和研究生小白进](https://www.bilibili.com/video/BV1j64y1M76u/?spm_id_from=333.788.recommend_more_video.8)

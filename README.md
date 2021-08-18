@@ -42,7 +42,7 @@
 | 思维导图 Xmind           | 🔗：https://www.xmind.cn/                                     | ⭐️⭐️       | 🔗：[教学地址](https://www.bilibili.com/video/BV1Rb411s7VG/?spm_id_from=333.788.recommend_more_video.1) |
 | Latex(上手难度大)        | 🔗：https://zhuanlan.zhihu.com/p/120815558                    | ⭐️⭐️       | 🔗：[教学地址](https://www.bilibili.com/video/BV1s7411U7Pr?from=search&seid=9773522059003645016) |
 
-### 四：论文写作与答辩技巧
+### 四：论文写作
 
 #### 开题报告
 - [【硕博开题报告 || 建议收藏】讲好关于开题报告的“故事”](https://www.bilibili.com/video/BV1U64y1W7ro?from=search&seid=16836755392749202509)

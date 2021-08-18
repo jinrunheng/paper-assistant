@@ -69,4 +69,24 @@
 - [【然然】硕士毕业论文写作经验分享：选题定题/论文排版/查重降重](https://www.bilibili.com/video/BV15g4y1z7xY?from=search&seid=12227777946231768995)
 
 - [硕士论文查重、降重经验分享！](https://www.bilibili.com/video/BV1Cf4y1b7h1/?spm_id_from=333.788.recommend_more_video.-1)
-- 未完成，待续...
+- [【硕博开题报告 || 建议收藏】讲好关于开题报告的“故事”](https://www.bilibili.com/video/BV1U64y1W7ro?from=search&seid=16836755392749202509)
+- [【论文拯救指南】干货！厦大博士学长手把手带你写文献综述，本科毕设和研究生小白进](https://www.bilibili.com/video/BV1j64y1M76u/?spm_id_from=333.788.recommend_more_video.8)
+- [建议收藏｜文献综述（二）例文解析｜博士学姐的干货分享｜讲的有点细，大家可以加速，建议看完哦！](https://www.bilibili.com/video/BV1WV411k7ow/?spm_id_from=333.788.recommend_more_video.-1)
+- [如何完成一篇文献综述 (How to write a review article)](https://www.bilibili.com/video/BV1554y1X7LT/?spm_id_from=333.788.recommend_more_video.1)
+- [研究生必看｜超实用文献管理软件｜一看就会｜博士学姐指路](https://www.bilibili.com/video/BV1aD4y1m7wr/?spm_id_from=333.788.recommend_more_video.1)
+- [【文献检索】学会这一招，再也不愁找不到文献了，文献竟然会自己送上门|高级检索操作超简单教程|研究生必看|提升文献检索效率](https://www.bilibili.com/video/BV1nV411s7ea)
+- [Endnote超实用简单教程|研究生必备技能|本硕博都有用|看过必会|博士学姐经验|吐血整理](https://www.bilibili.com/video/BV1DV41177VJ)
+- [研究生必会系列（一）｜如何快速入门自己研究领域｜跨学科研究入门｜理工课/人文社科学习建议](https://www.bilibili.com/video/BV1dV411B75z)
+- [研究生如何高效阅读英文文献（无废话篇）｜文献套路和阅读方法｜科研萌新蜕变科研新星｜英语差怎么办？研究生必会系列(二)](https://www.bilibili.com/video/BV19y4y1C7aP/?spm_id_from=333.788.recommend_more_video.7)
+- 待续...
+
+### 五：迷茫时☹️
+
+- [【励志/治愈】献给正处于迷茫的大家](https://www.bilibili.com/video/BV1us411b7N9?from=search&seid=7491043253796290701)
+- [小新和风间之间的故事](https://www.bilibili.com/video/BV1Kx411A73B?from=search&seid=726472725137900070)
+- [【励志】“你见过凌晨四点的洛杉矶吗？”——科比·布莱恩特](https://www.bilibili.com/video/BV1pK4y137N1?from=search&seid=3431729687232072602)
+- [【美女学霸】我试着24小时不停地学了一天｜Study With Me 跟我一起学习吧](https://www.bilibili.com/video/BV12s411j71t?from=search&seid=231774091700986146)
+- [罗翔：要爱具体的人，不要总是想着爱抽象的人](https://www.bilibili.com/video/BV1xq4y1X7YH)
+- [【指弹吉他】标调版绝美演奏周杰伦《我不配》](https://www.bilibili.com/video/BV1Ty4y1g7Hr)
+- [【罗翔说爱情】真正的爱是扶级而上的](https://www.bilibili.com/video/BV1Gv41157q3)
+- 待续...
